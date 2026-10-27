@@ -4,4 +4,4 @@
 
 hi im shig/niko/kyle <br>
 u can also call me mykola/nikolai/kolya when i use this github owo! <br>
-nikolai is quite literally my irl /srs name and i LOOOOOVE getting called it 
+(thats quite literally my irl name but in different spellings)
